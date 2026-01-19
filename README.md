@@ -1,3 +1,5 @@
 # Story
 
 At an unnamed bus stop each morning, Mira waited with cold coffee and warmer regrets, until one day a bus arrived early, driven by a man who looked exactly like her long-dead father, who told her it was the end of the line and showed her a road shimmering with her own memories—childhood, anger, loss—offering arrival without explanation; Mira chose instead to stay, reading a faded timetable that whispered _Don’t Be Afraid_, and as the bus departed and the world returned to normal, she walked to work feeling, quietly and unexpectedly, that she had arrived anyway.
+
+She folded the timetable and slipped it into her coat pocket, unsure why she wanted to keep something that felt less like paper than permission. The morning moved on—vendors shouting, brakes sighing, the sky lifting its grey veil—but Mira carried a steadiness she hadn’t known before, as if the waiting itself had finally taught her how to stand. When she reached her office door, the coffee long gone cold in her hand, she paused, breathed once, and understood that some journeys end not with answers, but with the courage to continue asking.
